@@ -1,5 +1,5 @@
 
-####folder for videos and phtos
+####folder for videos and photos
 https://drive.google.com/drive/folders/17M8c0dqSrHocCGFcP5Uxm4c_E4jFQ8Uh?usp=sharing
 
 ## Introduction
